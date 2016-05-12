@@ -2,10 +2,17 @@ Gallery
 Check out our photos of BPI staff, events, and videos!
 
 Photo Albums
-grad_icon.jpg   women_icon.jpg  mens_icon.jpg   chair_icon.jpg
 
-Graduation   Women & Business Retreat    Men's Retreat  Past Events & Retreats
+Graduation [Grad Icon Picture]
+Women & Business Retreat [Women Icon Picture]
+Men's Retreat [Men's Icon Picture]
+Past Events & Retreats [Past Events Icon Picture]
 
 Videos
 Join us at our annual Health & Vitality Retreat in late-winter/early-spring. Check our Events & Retreats page to view all of our upcoming retreats.
 
+[Health/Vitality Dawn Video](http://berkeleypsychic.com/video/dawn_4b/dawn_4b.html)
+
+[Subscribe to Newsletter Form]
+
+[Footer]
