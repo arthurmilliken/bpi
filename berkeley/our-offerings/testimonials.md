@@ -110,3 +110,15 @@ Impressive
 
 Jan 28, 2011 [Genbook Review](http://www.genbook.com/bookings/slot/reservation/30025288/reviews/?bookingContactId=401505156)
 
+
+Freedom
+"It's taken me a few years to *really* realize that the most important thing I got from going through BPI's clairvoyant program is freedom. True freedom. I get to choose how and whether to respond to things, and I have awareness now when I'm reacting versus consciously responding. The laughter and the freedom are real gifts."
+
+Diane Wren (South Portland, Maine)
+
+
+Communicating to the 'Real Me'
+"When I stepped into BPI’s institute in Berkeley, I had a feeling this place would change my life. For the first time ever, people were communicating to the real ‘me’ as a spirit, not just my physical body. I can’t begin to express the joy it brings to experience that."
+
+Veronika (Oakland, CA)
+
