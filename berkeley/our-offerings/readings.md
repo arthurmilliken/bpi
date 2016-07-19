@@ -69,4 +69,10 @@ Trance Medium Healing [schedule here](http://www.dejavu-psychics.com/trance-medi
 [Deja Vu Image]
 [www.DejaVu-Psychics.com](http://www.dejavu-psychics.com/)
 
+
+
+==========================
+
+
+
 BPI Graduates and teachers available to give readings! Call 800-201-2872
